@@ -7,7 +7,7 @@
 
 - 🤝 For detailed information [ZenoxDev Web](https://zenoxdev.shop)
 
-- 📫 How to reach me **zenoxydevelopment@gmail.com**
+- 📫 How to reach me **info@zenoxdev.shop**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
